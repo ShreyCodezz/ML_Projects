@@ -1,1 +1,1 @@
-LEARNING ML AND MAKING PROJECTS! :) :) :) :) :) :) :) :) :) :) :) :) :) :) :):) :) :) :) :) :) 
+LEARNING ML AND MAKING PROJECTS
